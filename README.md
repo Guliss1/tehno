@@ -1,0 +1,2 @@
+# tehno
+olimp
